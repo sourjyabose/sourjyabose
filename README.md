@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sourjyabose
 - 👀 I’m interested in learning
-- 📫 How to reach me: Email:sourjyabose@gmail.com Mobile: +91 8799 007 739
+- 📫 How to reach me: Email: sourjyabose@gmail.com Mobile: +91 8799 007 739
 - 😄 Pronouns: He, Him, His
 
 <!---
